@@ -32,7 +32,7 @@
 
 ### Задание 2
 
-![image](https://github.com/user-attachments/assets/6add9dda-de4d-4968-8a2d-7cd33904abc2)
+![image](https://github.com/user-attachments/assets/50b9b999-bd89-46d5-907f-5b339dd476ee)
 ![image](https://github.com/user-attachments/assets/3552c46f-44ff-4ae2-9497-cc820d47d830)
 
 ---
